@@ -12,7 +12,7 @@ Team Members and UID: Kss Harsha(DCH-8335)
 
 Team number: 27
 
-Journey of choosing idea and implementing the same: In the team few are from urban background and few from rural, as an individuals we always enjoyed company of any animals like dog, cow or cat around us. But we commonly observed that these stray animals do not get enough food and are not well maintained which inturn affect their health conditions. So, we came up without an idea of adpoting stray animals with proper medication. In such a case many homeless innocent creatures will have a happy life. Even if one animals leads a safe and happy environment because of us, it is a stupendous success for us. 
+Journey of choosing idea and implementing the same: In the team few are from urban background and few from rural, as an individuals we always enjoyed company of any animals like dog, cow or cat around us. But we commonly observed that these stray animals do not get enough food and are not well maintained which inturn affect their health conditions. So, we came up with an idea of adpoting stray animals with proper medication. In such a case many homeless innocent creatures will have a happy life. Even if one animal leads a safe and happy environment because of us, it is a stupendous success for us. 
 
 
 
